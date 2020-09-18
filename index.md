@@ -1,3 +1,3 @@
-# Welcome to my blog
+# This is AdKitty
 
-I'm glad you are here. I plan to talk about ...
+Host an online class? Register with us to allow advertising and sponsorships for your class and earn additional revenue!
